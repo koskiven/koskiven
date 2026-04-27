@@ -1,3 +1,10 @@
 <p align="center">
-  <img src="https://i.pinimg.com/originals/22/2f/3e/222f3e0051c41d13747df87a85c1d276.gif" width="600">
+  <img src="https://i.pinimg.com/originals/bc/09/a3/bc09a35115c83769c74700442dab8dec.gif" width="600">
 </p>
+____________________________________________________________________˚₊‧꒰ა ☆ ໒꒱ ‧₊˚______________________________________________________________
+
+
+
+
+
+p/s: my sis did :)
