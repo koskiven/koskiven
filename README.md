@@ -1,3 +1,4 @@
 <p align="center">
-  <img src="https://i.pinimg.com/originals/3b/f0/8a/3bf08aa24900c3f09dd3a8f2ef75b230.gif" width="600">
+  <img src="https://i.pinimg.com/736x/68/9d/13/689d131a4fafbafea0ecf4a64fad3f54.jpg" width="600">
 </p>
+
